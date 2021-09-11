@@ -1,0 +1,1 @@
+first we will put some water then add maggie masala then we will add the uncooked maggie then some onoion ad beans we will mix it and wait for 5-10mins then its ready!
